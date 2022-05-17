@@ -1,5 +1,5 @@
 # unlockervip source
-bunch of weird indian kids copy and pasted this and sold it. it took me like 5 minutes to decompile it
+bunch of weird indian kids copy and pasted this and sold it. it took me like a minute to decompile it
 
 - [ ] 10 Stars for the tool (not source)
 
