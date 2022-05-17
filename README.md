@@ -1,6 +1,10 @@
 # unlockervip source
 bunch of weird indian kids copy and pasted this and sold it. it took me like 5 minutes to decompile it
 
+- [ ] 10 Stars for the tool (not source)
+
+- [ ] 20 Stars for the full source
+
 # The Story
 
 This guy comes in my dm's saying that he'll sell me the source of this tool for $50. I didn't want it to begin with, but I went with it.
