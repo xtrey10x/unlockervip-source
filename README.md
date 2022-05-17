@@ -23,10 +23,7 @@ I set out on asking his customers to send me the file and guess what, one of the
 
 Doesn't matter...still wanted it.
 
-Now if you don't believe me when I say it took like 1 minute, here's the proof.
-
-https://user-images.githubusercontent.com/77902240/168577247-f2b9f699-53f1-4ddf-acaa-51b2a7bdb632.mp4
-
+Ended up cracking it in like 1 minute lol
 
 yuh. that's it ig. He banned me from the server and everything lol. told me to get a life and that he was just tryna make some money and i was jealous.
 
