@@ -5,7 +5,7 @@ bunch of weird indian kids copy and pasted this and sold it. it took me like a m
 
 - [ ] 20 Stars for the full source
 
-[![Proof](https://i.ytimg.com/an_webp/HDi5pQKuBNc/mqdefault_6s.webp?du=3000&sqp=COD-j5QG&rs=AOn4CLCitNnRfn7LBAGHK6lgJCToRNlltA)](https://youtu.be/HDi5pQKuBNc)
+[![Proof](https://i.ytimg.com/an_webp/HDi5pQKuBNc/mqdefault_6s.webp?du=3000&sqp=CLPrkpQG&rs=AOn4CLAtWase_Um697E7Vus_u5D1khkdSQ)](https://youtu.be/HDi5pQKuBNc)
 
 # The Story
 
